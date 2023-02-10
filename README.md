@@ -5,4 +5,5 @@ HI, I'm Misako, a lab manager at IEU, UZH. I have more than 15 years working exp
 2005 MSc in Biology in Kyoto
 2003 BSc in Biology in Kyoto
 
+reading
 
