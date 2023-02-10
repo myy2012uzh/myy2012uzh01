@@ -7,3 +7,4 @@ HI, I'm Misako, a lab manager at IEU, UZH. I have more than 15 years working exp
 
 reading
 
+My favourite color is blue
